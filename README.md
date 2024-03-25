@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Emm or Emm.code Studios
+- 👀 I’m interested in making games, websites, etc.
+- 🌱 I’m currently learning Html, javascript, css, etc. and school
+- 💞️ I’m looking to collaborate on a website maybe.
+- 😄 Pronouns: He/Him
